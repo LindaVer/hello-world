@@ -1,2 +1,2 @@
 # hello-world
-It is a place to store ideas, resources, or share and discuss things.
+I really like walking with my dog in nature especially in the forest.
